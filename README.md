@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shivanshyadav50@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1m0frkU1fGYM0xRObpiXG_MnXmTwBjfFQ/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1yaP7Uz-rZ59oJICJHrIaWEjK32MN_H_c/view?usp=sharing)
 
 - ⚡ Fun fact **I am interested in learning about cosmos and do research in cosmology, like to watch animes, like to learn new things and about cultures and history.**
 
